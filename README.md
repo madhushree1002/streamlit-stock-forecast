@@ -52,7 +52,7 @@ GitHub: [https://github.com/madhushree1002](https://github.com/madhushree3002)
 ## 📬 Contact
 
 For questions or feedback:  
-📧 madhushree3002.gmail.com
+📧 madhushree3002@gmail.com
 
 ---
 
